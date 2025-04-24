@@ -24,6 +24,6 @@
 ---
 
 ## 🔗 **Connect With Me**  
-✖ **Linkedin:** [Linkedin](https://www.linkedin.com/in/madhavan25/)    
+✖ **Linkedin:** [Madhavan A](https://www.linkedin.com/in/madhavan25/)    
 
 ⭐ **Drop a star if you find this useful!**
